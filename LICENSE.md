@@ -1,4 +1,4 @@
-# 
+# best MathType for PC | MathType for Windows Integration | symbolic-math + simulation is the best MathType for PC | MathType for Windows integration, featuring symbolic-math and
 
 
 
